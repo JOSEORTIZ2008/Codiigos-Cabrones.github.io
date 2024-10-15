@@ -1,1 +1,0 @@
-# JOSEORTIZ2008.github.io
